@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Atharv-gtm
-- 👀 I’m interested in COMPUTERS, ELECTRONICS AND CARSS.
+- 👀 I’m interested in COMPUTERS AND CARSS.
 - 🌱 I’m currently preparing for my ENTRANCES.
 - 💞️ I’m looking to collaborate on WEB DESIGNING
 - 📫 How to reach me "gautam.atharvofc@gmail.com"
